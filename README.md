@@ -1,4 +1,4 @@
 # Intro
 Just a Check
-I starterd today
+I started earlier
 
